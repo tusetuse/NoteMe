@@ -1,2 +1,1 @@
-# NoteMe
-# NoteMe
+I don't even know what I'm doing, probably just learning some stuff i will never use. Might commit, might not. Nobody will ever read this except me, so I really see no point in writing all of this. Bye :)
